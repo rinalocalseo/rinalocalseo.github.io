@@ -1,1 +1,1 @@
-# ai-marketing-prompts
+rinalocalseo.github.io
